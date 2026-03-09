@@ -11,11 +11,15 @@
 ##
   
   
-<img alt="img" width="300" height="600" src="https://media.tenor.com/xWXYanIR85sAAAAi/vampurr.gif" /><img alt="img" width="300" height="600" src="https://media1.tenor.com/m/1uoPGMqg3R8AAAAC/fruk-france.gif" /> <img alt="img" width="300" height="1200" src="https://media.tenor.com/QGWBPioif68AAAAi/happy-bunny.gif" />
+<img alt="img" width="200" height="600" src="https://media.tenor.com/xWXYanIR85sAAAAi/vampurr.gif" /><img alt="img" width="300" height="600" src="https://media1.tenor.com/m/1uoPGMqg3R8AAAAC/fruk-france.gif" /> <img alt="img" width="200" height="1200" src="https://media.tenor.com/QGWBPioif68AAAAi/happy-bunny.gif" />
 
 ##
 
-</p>ᴍᴀɪɴ ꜰᴀɴᴅᴏᴍs ∷ ʜsʀ, ʙᴀɴᴅᴏʀɪ, ᴇɴsᴛᴀʀs, ʜɪ3ʀᴅ</code>
+</p>𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒 ∷ 𝐇𝐒𝐑, 𝐇𝐈𝟑𝐫𝐝, 𝐁𝐀𝐍𝐃𝐎𝐑𝐈, 𝐄𝐍𝐒𝐓𝐀𝐑𝐒</code>
+
+
+
+𝙾𝚃𝙷𝙴𝚁 ∷ 𝙳𝙰𝙽𝙶𝙰𝙽𝚁𝙾𝙽𝙿𝙰, 𝙷𝙴𝚃𝙰𝙻𝙸𝙰, 𝚈𝚃𝚃𝙳, 𝚃𝚆𝙸𝚂𝚃𝙴𝙳 𝚆𝙾𝙽𝙳𝙴𝚁𝙻𝙰𝙽𝙳, 𝚂𝙴𝙺𝙰𝙸, 𝚉𝚉𝚉, 𝙶𝙴𝙽𝚂𝙷𝙸𝙽, 𝙷𝚈𝙿𝙼𝙸𝙲, 𝚂𝙻𝙾𝚆 𝙳𝙰𝙼𝙰𝙶𝙴
 
 ##
 
@@ -32,7 +36,7 @@
 
 
 
-<img width="1000" alt="image" src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" />
+<img width="1000" alt="image" src="https://media.tenor.com/qOQg-9-s1V4AAAAi/heart-nice.gif" />
 
 <img width="150" height="300" alt="image" src="https://static.wikia.nocookie.net/danganronpa/images/3/33/Danganronpa_V3_Shuichi_Saihara_Halfbody_Sprite_%28Hat%29_%2837%29.png/revision/latest/scale-to-width-down/250?cb=20180505054023" /><img width="150" height="300" alt="image" src="https://static.wikia.nocookie.net/danganronpa/images/3/3a/Danganronpa_V3_Rantaro_Amami_Halfbody_Sprite_%281%29.png/revision/latest/scale-to-width-down/250?cb=20180429103858" />
 
