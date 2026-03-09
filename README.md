@@ -1,7 +1,25 @@
 <div align="center">
   <img width="1000" height="200" alt="img" src="https://media.tenor.com/4fVvFZpbcawAAAAi/pink-ribbon-cute.gif" />
-<img alt="img" width="300" height="600" src="https://media1.tenor.com/m/1uoPGMqg3R8AAAAC/fruk-france.gif" /> 
-<img width="1000" alt="image" src="https://media.tenor.com/kHCz3Vrz03EAAAAi/red-divider.gif" />
+  
+  <code style="color : pink">𝐇𝐄𝐋𝐋𝐎 𝐄VE𝐑𝐘𝐎𝐍𝐄
+𝐌𝐘 𝐍𝐀𝐌𝐄 𝐈𝐒 𝐀𝐈𝐒𝐄, 𝐍𝐈𝐂𝐄 𝐓𝐎 𝐌𝐄𝐄𝐓 𝐘𝐎𝐔</code> 
+
+</p>ʙᴅᴀʏ ∷ 07.11</code>
+
+  </p>ᴅɴɪ ∷ ᴀнᴛиᴄы, ᴛᴩᴀнᴄы, ᴀᴧнᴄᴛɸᴀᴦи, ᴄᴇᴧɸɯиᴨᴨᴇᴩы, ʍуᴄᴧиʍы, зоо-ᴨᴇдо ᴨᴩоᴋонᴛᴀᴋᴛ, цыᴦᴀнᴇ, ᴛоᴧᴇᴩᴀɯᴋи, доᴧбᴀᴇбы ᴨоʍᴇɯᴀныᴇ нᴀ ᴛиᴨоᴧоᴦиях</code>
+
+##
+  
+  
+<img alt="img" width="300" height="600" src="https://media.tenor.com/xWXYanIR85sAAAAi/vampurr.gif" /><img alt="img" width="300" height="600" src="https://media1.tenor.com/m/1uoPGMqg3R8AAAAC/fruk-france.gif" /> <img alt="img" width="300" height="1200" src="https://media.tenor.com/QGWBPioif68AAAAi/happy-bunny.gif" />
+
+##
+
+</p>ᴍᴀɪɴ ꜰᴀɴᴅᴏᴍs ∷ ʜsʀ, ʙᴀɴᴅᴏʀɪ, ᴇɴsᴛᴀʀs, ʜɪ3ʀᴅ</code>
+
+##
+
+<img width="1000" alt="img" src="https://media.tenor.com/eqamhUTVj-UAAAAi/flower-pink-header.gif" />
 
 
 
