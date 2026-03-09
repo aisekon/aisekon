@@ -1,5 +1,5 @@
 <div align="center">
-  <img width="1000" height="200" alt="img" src="https://media.tenor.com/4fVvFZpbcawAAAAi/pink-ribbon-cute.gif" />
+  <img width="1000" height="200" alt="img" src="https://media.tenor.com/ouf9K9NNaRwAAAAj/bow-pink-bow.gif" />
   
   <code style="color : pink">𝐇𝐄𝐋𝐋𝐎 𝐄VE𝐑𝐘𝐎𝐍𝐄
 𝐌𝐘 𝐍𝐀𝐌𝐄 𝐈𝐒 𝐀𝐈𝐒𝐄, 𝐍𝐈𝐂𝐄 𝐓𝐎 𝐌𝐄𝐄𝐓 𝐘𝐎𝐔</code> 
@@ -35,7 +35,6 @@
 <img width="100" alt="image" src="https://media1.tenor.com/m/utuJLWjh0hcAAAAC/sara-chidouin-your-turn-to-die.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/wb0khYslPkYAAAAC/lycahugo-von-lycaon.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/6lqmdLdgONAAAAAC/sou-hiyori.gif" />
 
 
-
 <img width="1000" alt="image" src="https://media.tenor.com/qOQg-9-s1V4AAAAi/heart-nice.gif" />
 
 <img width="150" height="300" alt="image" src="https://static.wikia.nocookie.net/danganronpa/images/3/33/Danganronpa_V3_Shuichi_Saihara_Halfbody_Sprite_%28Hat%29_%2837%29.png/revision/latest/scale-to-width-down/250?cb=20180505054023" /><img width="150" height="300" alt="image" src="https://static.wikia.nocookie.net/danganronpa/images/3/3a/Danganronpa_V3_Rantaro_Amami_Halfbody_Sprite_%281%29.png/revision/latest/scale-to-width-down/250?cb=20180429103858" />
@@ -43,3 +42,5 @@
 <img alt="GitHub followers" src="https://img.shields.io/github/followers/aisekon?style=flat&label=FRIENDS;&labelColor=pink&color=white">
 
 <img src="https://visitor-badge.laobi.icu/badge?page_id=aisekon.aisekon&left_color=pink&right_color=white&left_text=VISITORS;"/>
+
+ <img width="500" height="500" alt="img" src="https://media1.tenor.com/m/5Nu_ZTy0fgwAAAAC/eichi-tenshouin.gif" />
