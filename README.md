@@ -1,6 +1,7 @@
 <div align="center">
-  <img width="10000" alt="image" src="https://media.tenor.com/VWaAeb6PypoAAAAi/divider.gif" />
+  <img width="1000" height="200" alt="img" src="https://media.tenor.com/4fVvFZpbcawAAAAi/pink-ribbon-cute.gif" />
 <img alt="img" width="300" height="600" src="https://media1.tenor.com/m/1uoPGMqg3R8AAAAC/fruk-france.gif" /> 
+<img width="1000" alt="image" src="https://media.tenor.com/kHCz3Vrz03EAAAAi/red-divider.gif" />
 
 
 
@@ -10,5 +11,7 @@
 <img width="100" alt="image" src="https://media1.tenor.com/m/SxWsUQQ4lLEAAAAC/umamusume-uma-musume.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/zBURI-zmfFgAAAAC/ultimate-imposter-the-ultimate-imposter.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/HkxheeXtBwsAAAAC/nu-carnival-edmond.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/zNl_ScdUg-oAAAAC/edmond-edmond-nu-carnival.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/WK7lG7U-pOUAAAAC/aster-nu-carnival.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/PbS0KiWGXBMAAAAd/olivine-nu-carnival.gif" />
 <img width="100" alt="image" src="https://media1.tenor.com/m/J5gNXk2_b5kAAAAC/mizuki-rui.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/99Ri7YNtB4gAAAAC/akitoya-akito.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/KE8If_bGhQUAAAAC/muu-milgram-mu-milgram.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/LD0yQ2Vi3oQAAAAC/umitaki-taki-shiina.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/HaOBtQaxfhoAAAAC/avenday-honkai-star-rail.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/r1P1rDZJGyoAAAAC/genshin-impact-kaveh.gif" />
 <img width="100" alt="image" src="https://media1.tenor.com/m/utuJLWjh0hcAAAAC/sara-chidouin-your-turn-to-die.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/wb0khYslPkYAAAAC/lycahugo-von-lycaon.gif" /><img width="100" alt="image" src="https://media1.tenor.com/m/6lqmdLdgONAAAAAC/sou-hiyori.gif" />
+
+<img width="1000" alt="image" src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" />
 
 <img width="150" height="300" alt="image" src="https://static.wikia.nocookie.net/danganronpa/images/3/33/Danganronpa_V3_Shuichi_Saihara_Halfbody_Sprite_%28Hat%29_%2837%29.png/revision/latest/scale-to-width-down/250?cb=20180505054023" /><img width="150" height="300" alt="image" src="https://static.wikia.nocookie.net/danganronpa/images/3/3a/Danganronpa_V3_Rantaro_Amami_Halfbody_Sprite_%281%29.png/revision/latest/scale-to-width-down/250?cb=20180429103858" />
